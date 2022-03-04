@@ -2,6 +2,6 @@
 - 👀 I’m interested in music production
 - 🌱 I’m currently learning Dubstep
 - 💞️ I’m looking to collaborate on make music
-- 📫 Connect spoti.fi/3fsMe4H 🎧
+- 📫 Connect https://spoti.fi/3fsMe4H 🎧
 🖤 
 https://www.youtube.com/c/0UTRecords
